@@ -1,5 +1,5 @@
 # culture_of_punjab
 
-## The religious and folk cluture
+## The religious of folk cluture
 
 * Some Cultural informations is available here.
